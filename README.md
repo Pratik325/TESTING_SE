@@ -25,4 +25,4 @@ Advantage old had otherwise sincerity dependent additions. It in adapted natural
 
 
 
-hello alll frands
+hello alll friends
